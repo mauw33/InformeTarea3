@@ -59,7 +59,7 @@ Resolución del capitulo 6 (ejercicios pares)
 
 4. VIDEO
 
-
+https://youtu.be/Ou1WO-NROcI
 
 5. CONCLUSIONES
 
